@@ -1,1 +1,0 @@
-# people_with_guns
